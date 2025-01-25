@@ -54,7 +54,7 @@ Sign up now to receive:
 - Trusted expertise: Insights featured across leading crypto platforms.
 - Unmatched convenience: All you need in just 10 minutes per week.
 
-## 💼 Join the Revolution
+## 💼 Take the Next Step
 Ready to unlock the best on-chain insights and **crypto alpha signals**? Sign up today and turn data into profitable strategies.
 
 ---
