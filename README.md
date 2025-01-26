@@ -57,6 +57,12 @@ Sign up now to receive:
 ## 💼 Take the Next Step
 Ready to unlock the best on-chain insights and **crypto alpha signals**? Sign up today and turn data into profitable strategies.
 
+## Bitcoin Research Example  
+Discover why **Long-Term Holders (LTH)** are entering accumulation mode.  
+From **LTH net position spikes** to unexpected **MVRV drops**, explore the signals driving a shift in market sentiment.
+
+[Full research available here](https://adlerscryptoinsights.substack.com/p/insight-7).
+
 ---
 
 ### Connect With Us
